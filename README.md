@@ -1,2 +1,2 @@
-Phitron Batch 3 Cp CLub Selection contest
+Phitron Batch 3 Cp Club Selection contest
 XPSC-Club-Preliminary-Contest
